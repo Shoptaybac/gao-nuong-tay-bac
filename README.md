@@ -23,7 +23,7 @@ Gạo nương Tây Bắc là loại gạo đặc sản được trồng trên nh
 ## 🛒 Mua gạo nương Tây Bắc ở đâu?
 Bạn có thể đặt mua trực tiếp tại:
 - 👉 [Shoptaybac.com](https://shoptaybac.com)
-- 👉 Hoặc liên hệ Zalo: [https://zalo.me/123456789](https://zalo.me/0901729992)
+- 👉 Hoặc liên hệ Zalo: [https://zalo.me/0901729992](https://zalo.me/0901729992)
 
 ---
 
