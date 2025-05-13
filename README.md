@@ -1,7 +1,7 @@
 # Gạo nương Tây Bắc – Tinh hoa từ núi rừng
 
 ## 📌 Giới thiệu
-Gạo nương Tây Bắc là loại gạo đặc sản được trồng trên những thửa ruộng bậc thang vùng núi cao, nơi khí hậu trong lành và đất đai màu mỡ. Đây là sản phẩm truyền thống được bà con dân tộc vùng cao chăm sóc theo phương pháp canh tác tự nhiên, không hóa chất, mang lại chất lượng thơm ngon và an toàn cho người tiêu dùng.
+[Gạo nương Tây Bắc](https://shoptaybac.com/san-pham/gao-nep-nuong-dien-bien-5kg/) là loại gạo đặc sản được trồng trên những thửa ruộng bậc thang vùng núi cao, nơi khí hậu trong lành và đất đai màu mỡ. Đây là sản phẩm truyền thống được bà con dân tộc vùng cao chăm sóc theo phương pháp canh tác tự nhiên, không hóa chất, mang lại chất lượng thơm ngon và an toàn cho người tiêu dùng.
 
 ![Gạo nương Tây Bắc](https://i.imgur.com/O0ibx9c.jpeg))
 
